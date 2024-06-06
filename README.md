@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @TGEXCELLENT
 - 👀 I’m interested in telegram community management.
 - 🌱 I’m currently learning about how to blast out successful mass DM on telegram to others users.
-- 💞️ I’m looking to collaborate on to send successful mass DM to telegram users.
+- 💞️ I’m looking to collaborate on how to send successful mass DM to telegram users.
+- if you can teach me, pls this is my contact 👇👇
 - 📫 How to reach me; WhatsAp @+2349130639429
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
